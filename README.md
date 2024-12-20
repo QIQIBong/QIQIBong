@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning how to read manga
 - 💞️ I’m looking to collaborate on free manga website
 - 📫 How to reach me https://www.mangasuika.com/
+- ✨And I also like this website:https://www.firemanga.com/
 
 
 <!---
